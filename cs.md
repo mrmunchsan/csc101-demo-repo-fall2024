@@ -11,7 +11,7 @@
 
 
 - Osint tools and reddit wizards!
-- My beautiful laptop 
+- My beautiful laptop and awesome charger because I love it
 
 
 
